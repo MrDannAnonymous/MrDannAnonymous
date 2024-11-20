@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MrDannAnonymous
 - 👀 I’m interested in soccer and this programming.
-- 🌱 I’m currently everywhere.
+- 👤 I’m currently everywhere.
 - 💞️ I’m looking to collaborate on ???
 - 📫 How to reach me? By luck 🍀. 
 - ⚡ Fun fact: All the above were written from the past.
